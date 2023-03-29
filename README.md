@@ -135,3 +135,47 @@ Aqui está um roteiro de estudos com tópicos para ajudá-lo a atingir a fluênc
 **Sexta-feira:**
 - Vocabulário básico em inglês (cores, números, transporte, etc.)
   - Link para estudo: https://www.memrise.com/course/272/basic-english-vocabulary
+
+## Semana 7
+
+**Segunda-feira:**
+- Advérbios de frequência em inglês (always, usually, never, etc.)
+  - Link para estudo: https://www.englishclub.com/grammar/adverbs-frequency.htm
+
+**Terça-feira:**
+- Condicionais em inglês (if clauses)
+  - Link para estudo: https://www.espressoenglish.net/english-conditional-sentences/
+
+**Quarta-feira:**
+- Conversação básica em inglês (continuação)
+  - Link para estudo: https://www.youtube.com/watch?v=3o0mLbV43zA
+
+**Quinta-feira:**
+- Modificadores de advérbios em inglês (very, quite, pretty, etc.)
+  - Link para estudo: https://www.englishclub.com/grammar/adverbs-modifying.htm
+
+**Sexta-feira:**
+- Vocabulário básico em inglês (tempo, clima, natureza, etc.)
+  - Link para estudo: https://www.memrise.com/course/1132402/essential-english-vocabulary-4/
+
+## Semana 8
+
+**Segunda-feira:**
+- Passado perfeito (past perfect)
+  - Link para estudo: https://www.grammarly.com/blog/past-perfect/
+
+**Terça-feira:**
+- Gerúndio em inglês (gerund)
+  - Link para estudo: https://www.englishclub.com/grammar/verbs-gerunds.htm
+
+**Quarta-feira:**
+- Conversação básica em inglês (continuação)
+  - Link para estudo: https://www.youtube.com/watch?v=JvOcWYmxFIc
+
+**Quinta-feira:**
+- Pronúncia em inglês (continuação)
+  - Link para estudo: https://www.youtube.com/watch?v=Fw1xkw0dszo
+
+**Sexta-feira:**
+- Vocabulário básico em inglês (festas, feriados, comida, etc.)
+  - Link para estudo: https://www.memrise.com/course/1132403/essential-english-vocabulary-5/
