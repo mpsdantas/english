@@ -223,3 +223,46 @@ Aqui está um roteiro de estudos com tópicos para ajudá-lo a atingir a fluênc
 **Sexta-feira:**
 - Vocabulário básico em inglês (transporte, viagem, hotel, etc.)
   - Link para estudo: https://www.memrise.com/course/1140477/essential-english-vocabulary-6/
+## Semana 11
+
+**Segunda-feira:**
+- Passado simples (past simple)
+  - Link para estudo: https://www.grammarly.com/blog/past-simple/
+
+**Terça-feira:**
+- Preposições de tempo em inglês (at, on, in)
+  - Link para estudo: https://www.englishclub.com/grammar/prepositions-time.htm
+
+**Quarta-feira:**
+- Conversação básica em inglês (continuação)
+  - Link para estudo: https://www.youtube.com/watch?v=nZ04BPhwYzQ
+
+**Quinta-feira:**
+- Adjetivos em inglês (ordem, graus, etc.)
+  - Link para estudo: https://www.espressoenglish.net/english-adjectives-order-and-examples/
+
+**Sexta-feira:**
+- Vocabulário básico em inglês (família, esportes, hobby, etc.)
+  - Link para estudo: https://www.memrise.com/course/438/basic-english-vocabulary-part-4/
+
+## Semana 12
+
+**Segunda-feira:**
+- Verbos em inglês (regular and irregular verbs)
+  - Link para estudo: https://www.englishclub.com/grammar/verbs-regular-list.htm
+
+**Terça-feira:**
+- Preposições de lugar em inglês (in, on, at, etc.)
+  - Link para estudo: https://www.englishclub.com/grammar/prepositions-place.htm
+
+**Quarta-feira:**
+- Conversação básica em inglês (continuação)
+  - Link para estudo: https://www.youtube.com/watch?v=W9Ivg-6hOZg
+
+**Quinta-feira:**
+- Expressões idiomáticas em inglês (to hit the nail on the head, to be over the moon, etc.)
+  - Link para estudo: https://www.englishclub.com/vocabulary/idioms-list.htm
+
+**Sexta-feira:**
+- Revisão geral do que foi aprendido durante as 12 semanas
+  - Faça uma revisão dos tópicos estudados e pratique a conversação em inglês.
