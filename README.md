@@ -74,4 +74,64 @@ Aqui está um roteiro de estudos com tópicos para ajudá-lo a atingir a fluênc
 
 **Segunda-feira:**
 - Presente perfeito (present perfect)
-  - Link para estudo: https://www.
+  - Link para estudo: https://www.englishclub.com/grammar/verbs-tenses-present-perfect.htm
+
+**Terça-feira:**
+- Pronomes reflexivos em inglês (myself, yourself, himself, etc.)
+  - Link para estudo: https://www.englishclub.com/grammar/pronouns-reflexive.htm
+
+**Quarta-feira:**
+- Conversação básica em inglês (continuação)
+  - Link para estudo: https://www.youtube.com/watch?v=1s3sUxrfkU0
+
+**Quinta-feira:**
+- Adjetivos em inglês (comparativos e superlativos)
+  - Link para estudo: https://www.espressoenglish.net/english-adjectives-comparative-superlative/
+
+**Sexta-feira:**
+- Vocabulário básico em inglês (profissões, lugares, atividades, etc.)
+  - Link para estudo: https://www.memrise.com/course/257/basic-english-vocabulary/
+
+## Semana 5
+
+**Segunda-feira:**
+- Passado contínuo (past continuous)
+  - Link para estudo: https://www.grammarly.com/blog/past-continuous/
+
+**Terça-feira:**
+- Expressões idiomáticas em inglês
+  - Link para estudo: https://www.englishclub.com/vocabulary/idioms.htm
+
+**Quarta-feira:**
+- Conversação básica em inglês (continuação)
+  - Link para estudo: https://www.youtube.com/watch?v=ESLrTszTb-U
+
+**Quinta-feira:**
+- Pronúncia em inglês (continuação)
+  - Link para estudo: https://www.youtube.com/watch?v=5MPLN1VHu74
+
+**Sexta-feira:**
+- Vocabulário básico em inglês (esportes, música, cinema, etc.)
+  - Link para estudo: https://www.memrise.com/course/271/basic-english-vocabulary-part-2/
+
+## Semana 6
+
+**Segunda-feira:**
+- Futuro em inglês (will e going to)
+  - Link para estudo: https://www.espressoenglish.net/english-grammar-future-tense-will-going-to/
+
+**Terça-feira:**
+- Pronomes possessivos em inglês (my, your, his, etc.)
+  - Link para estudo: https://www.englishclub.com/grammar/pronouns-possessive.htm
+
+**Quarta-feira:**
+- Conversação básica em inglês (continuação)
+  - Link para estudo: https://www.youtube.com/watch?v=hHJLLy8Xi6c
+
+**Quinta-feira:**
+- Phrasal verbs em inglês (get up, look after, put off, etc.)
+  - Link para estudo: https://www.englishclub.com/vocabulary/phrasal-verbs.htm
+
+**Sexta-feira:**
+- Vocabulário básico em inglês (cores, números, transporte, etc.)
+  - Link para estudo: https://www.memrise.com/course/272/basic-english-vocabulary
