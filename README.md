@@ -179,3 +179,47 @@ Aqui está um roteiro de estudos com tópicos para ajudá-lo a atingir a fluênc
 **Sexta-feira:**
 - Vocabulário básico em inglês (festas, feriados, comida, etc.)
   - Link para estudo: https://www.memrise.com/course/1132403/essential-english-vocabulary-5/
+
+## Semana 9
+
+**Segunda-feira:**
+- Expressões condicionais em inglês (unless, as long as, provided that, etc.)
+  - Link para estudo: https://www.englishclub.com/grammar/conditionals-conditional-expressions.htm
+
+**Terça-feira:**
+- Uso de "there" em inglês (there is, there are, there was, etc.)
+  - Link para estudo: https://www.espressoenglish.net/english-grammar-there-is-there-are/
+
+**Quarta-feira:**
+- Conversação básica em inglês (continuação)
+  - Link para estudo: https://www.youtube.com/watch?v=1UfF2B6F8Bc
+
+**Quinta-feira:**
+- Vocabulário de negócios em inglês (reuniões, apresentações, e-mails, etc.)
+  - Link para estudo: https://www.memrise.com/course/1545635/business-english-vocabulary/
+
+**Sexta-feira:**
+- Vocabulário básico em inglês (materiais escolares, roupas, animais, etc.)
+  - Link para estudo: https://www.memrise.com/course/167/basic-english-vocabulary-part-3/
+
+## Semana 10
+
+**Segunda-feira:**
+- Verbos modais em inglês (can, could, may, might, etc.)
+  - Link para estudo: https://www.grammarly.com/blog/modal-verbs/
+
+**Terça-feira:**
+- Preposições em inglês (in, on, at, to, etc.)
+  - Link para estudo: https://www.englishclub.com/grammar/prepositions-list.htm
+
+**Quarta-feira:**
+- Conversação básica em inglês (continuação)
+  - Link para estudo: https://www.youtube.com/watch?v=Kj1fUV7L2kM
+
+**Quinta-feira:**
+- Expressões de tempo em inglês (now, then, already, etc.)
+  - Link para estudo: https://www.englishclub.com/grammar/adverbs-time.htm
+
+**Sexta-feira:**
+- Vocabulário básico em inglês (transporte, viagem, hotel, etc.)
+  - Link para estudo: https://www.memrise.com/course/1140477/essential-english-vocabulary-6/
